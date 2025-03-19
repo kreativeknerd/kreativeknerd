@@ -20,8 +20,11 @@ Welcome to my creative corner of the internet! I'm a designer, fiber artist, and
 ✨ Fun & Quirky Facts:
 
 ⚡ I can crochet nearly anything in 3D—from lifelike pets to fantasy creatures!
+
 🎶 I love blending traditional art with digital techniques to create something unique.
+
 🎥 Working on improving my video production skills for YouTube and online courses!
+
 📫 Let’s connect! kreativeknerd@gmail.com
 
 
