@@ -3,7 +3,7 @@
 Welcome to my creative corner of the internet! I'm a designer, fiber artist, and all-around kreative knerd who loves bringing ideas to life—whether it's through pixels, yarn, or a mix of both!
 
 🎭 What I'm Up To:
-🧶 Crocheting whimsical amigurumi creatures (dragons? People? You name it!)
+🧶 Crocheting whimsical amigurumi creatures
 🎨 Studying Graphic Design at Rasmussen University
 🌍 Crafting responsive web designs for nonprofits
 🖌️ Exploring the intersection of art, design, and code
