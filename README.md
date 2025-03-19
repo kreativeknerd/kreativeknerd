@@ -13,7 +13,8 @@ Welcome to my creative corner of the internet! I'm a designer, fiber artist, and
 🖌️ Exploring the intersection of art, design, and code
 
 
-🎬 Let's Connect & Collaborate!
+🎬<be> Let's Connect & Collaborate!</br>
+
 
 🤝 Looking to team up on multimedia projects—motion design, branding, web… let’s make magic!
 
