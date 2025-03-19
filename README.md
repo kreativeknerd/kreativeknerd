@@ -5,8 +5,11 @@ Welcome to my creative corner of the internet! I'm a designer, fiber artist, and
 🎭 What I'm Up To:
 
 🧶 Crocheting whimsical amigurumi creatures (dragons? People? You name it!)
+
 🎨 Studying Graphic Design at Rasmussen University
+
 🌍 Crafting responsive web designs for nonprofits
+
 🖌️ Exploring the intersection of art, design, and code
 
 🎬 Let's Connect & Collaborate!
